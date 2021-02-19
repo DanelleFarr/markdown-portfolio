@@ -1,6 +1,6 @@
 1. Currently Reading the new Thrawn Trilogy
-  1. I'm enjoying how Eli Vanto acts as a foil
-  2. I still don't care for Padme
+    1. I'm enjoying how Eli Vanto acts as a foil
+    2. I still don't care for Padme
 2. Currently playing Concrete Genie
 3. Currently binge-watching Code Lyoko
 
